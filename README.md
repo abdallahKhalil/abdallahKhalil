@@ -3,4 +3,4 @@
 - 🌱 I’m currently in the University
 - 💞️ I'm willing  to make a defference 
 - 📫 reach me abdallahkhalil620@gmail.com 
-- I apprecieat all type of help I am still new and need a lot of guidence:p
+- I appreciate all type of help 👐
