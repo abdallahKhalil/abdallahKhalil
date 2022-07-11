@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @abdallahKhalil
 - 👀 I’m interested in futurestic stuff
-- 🌱 I’m currently in the University
+- 🌱 I just got graduated
 - 💞️ I'm willing  to make a defference 
 - 📫 reach me abdallahkhalil620@gmail.com 
 - I appreciate all type of help 👐
